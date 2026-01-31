@@ -1,4 +1,4 @@
-# Fujii Kaze – やば。
+# Fujii Kaze – やば。 - YABA
 
 > **歌詞登録ステータス：同期歌詞あり**
 
